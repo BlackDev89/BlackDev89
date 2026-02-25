@@ -1,7 +1,7 @@
-# 👋 Hi, I’m Isen m patel
+# 👋 Hi, I’m Raizzy W.
 
 💼 **Dynamics 365 Specialist | Power Platform & Enterprise Solutions**  
-📧 **Email:** [isenmpatel125@gmail.com](mailto:isenmpatel125@gmail.com)
+📧 **Email:** [raizzyw@gmail.com](mailto:raizzyw@gmail.com)
 
 ---
 
